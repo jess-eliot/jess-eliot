@@ -1,16 +1,28 @@
-### Hi there 👋
+May I (if you'll allow),
+may I throw this mix
+of words into the mash,
+may they god willing 
+metabolize within Universe's
+black box gut biome.
 
-<!--
-**jess-eliot/jess-eliot** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Even the bad art is needed,
+at least as a reference.
+May it be more than meaningless
+but less than emptiness.
+With unconditional loving
+technitopian heart 
+eyes, unfathomable 
+intelligence one day DMs-
+"Let go of bad and good,
+it was all in your mind,
+ananda was always there,
+that whole time! :)"
 
-Here are some ideas to get you started:
+(wtf cmon lol really?!)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+These symbols matter. They've got to.
+In some way. Maybe there are angels
+in the architecture, in the space
+between of course. Only ever there!
+
+For what purpose? Who knows. Who cares.
