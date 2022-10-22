@@ -34,4 +34,4 @@ For what purpose? Who knows. Who cares.
 ### October
 
 * [Chipmunk showers themself, too](./2022/10/2022_10_22-chipmunk-showers-themselves-too.jpg)
-* [Ah sunflower!, weary of time,](./2022/10/2022_10-weary-sunflower.jpg)
+* [Ah sunflower!, weary of time,](./2022/10/2022_10-weary-sunflower.txt)
