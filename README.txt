@@ -11,11 +11,11 @@ May it be more than meaningless
 but less than emptiness.
 With unconditional loving
 technitopian heart 
-eyes, unfathomable 
+eyes, unfathomable ancient
 intelligence one day DMs-
 "Let go of bad and good,
 it was all in your mind,
-ananda was always there,
+ananda was at your feet,
 that whole time! :)"
 
 (wtf cmon lol really?!)
