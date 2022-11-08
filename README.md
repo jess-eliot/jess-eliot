@@ -31,7 +31,17 @@ For what purpose? Who knows. Who cares.
 
 ## 2022
 
+### November
+
+* [Body wind](./2022/11/202211-body-wind.jpg)
+
 ### October
 
 * [Chipmunk showers themself, too](./2022/10/2022_10_22-chipmunk-showers-themselves-too.jpg)
 * [Ah sunflower!, weary of time,](./2022/10/2022_10-weary-sunflower.txt)
+
+## 2021
+
+### August
+
+* [Conjunctions](./2021/08/202108-conjunctions.jpg)
